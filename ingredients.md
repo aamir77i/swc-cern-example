@@ -1,4 +1,4 @@
-# Ingredients
+# Organic online ingredients for some seriously awesome guacamole
 
 
 - 2 avocados
